@@ -104,7 +104,3 @@
 ### 🌐 Let’s Connect
 
 - [LinkedIn](https://www.linkedin.com/in/okabasele)
-
----
-
-> 🧠 “Build boldly. Learn constantly. Share openly.”
